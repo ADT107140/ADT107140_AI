@@ -1,3 +1,3 @@
-ai course
-ntcu ai
-pro chih-hung wu in ntcu dct
+ai course  
+ntcu ai  
+pro chih-hung wu in ntcu dct  
